@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @joelazy
+- 👀 I’m interested with github
+- 🌱 I’m currently learning githyb
+- 💞️ I’m looking to collaborate on github projects
+- 📫 Reach me by (good luck finding this)
